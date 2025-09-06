@@ -1,7 +1,7 @@
 
 ![](https://komarev.com/ghpvc/?username=funtiimefoxy&color=ff69b4&style=plastic&label="MY+VIEWERS!")
 
-i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to know! all you should focus on is my performance! unless you wanna take part in the act or whatever. i love my funtime crew! even though, theyre not here! never seen em around!
+i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to know! all you should focus on is my performance! unless you wanna take part in the act or whatever. i love my funtime crew! 
 
 i adapt and copy, i dislike bright lights due to sensitivity, so im usually on dark mode! 
 
