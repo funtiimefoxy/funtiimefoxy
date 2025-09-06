@@ -1,3 +1,8 @@
-<img width="2048" height="1536" alt="1000004300" src="https://github.com/user-attachments/assets/453fb89f-e8fe-43d4-83eb-b472e184f6ff" />
 
 ![](https://komarev.com/ghpvc/?username=funtiimefoxy&color=ff69b4&style=plastic&label="MY+VIEWERS!")
+
+i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to know! all you should focus on is my performance! unless you wanna take part in the act or whatever. i love my funtime crew! even though, theyre not here! never seen em around!
+
+i adapt and copy, i dislike bright lights due to sensitivity, so im usually on dark mode! 
+
+<img width="2048" height="1536" alt="1000004300" src="https://github.com/user-attachments/assets/0ab454c5-4e73-4787-b2f7-293f3c8d8d71" />
