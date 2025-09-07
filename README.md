@@ -10,7 +10,6 @@ i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to kn
 
 <img width="99" height="56" alt="1000004355" src="https://github.com/user-attachments/assets/029bb9cc-faf6-4d9f-8791-d9980b0f111d" />
 <img width="99" height="56" alt="1000004316" src="https://github.com/user-attachments/assets/d211548e-fde8-4f74-9b23-17af5631316d" />
-<img width="99" height="56" alt="1000004315" src="https://github.com/user-attachments/assets/21f6ab93-5ac4-407d-8bdd-c323b0953939" />
 <img width="99" height="56" alt="1000004363" src="https://github.com/user-attachments/assets/f020fd22-a96b-4881-8652-53ccb0185b47" />
 <img width="99" height="56" alt="1000004364" src="https://github.com/user-attachments/assets/a747a6fb-a533-4eb2-9afa-49a35114f867" />
 <img width="99" height="56" alt="1000004365" src="https://github.com/user-attachments/assets/eb062e18-6a5e-4c84-a2c7-ad18226fe931" />
@@ -30,3 +29,6 @@ i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to kn
 <img width="99" height="56" alt="1000004087" src="https://github.com/user-attachments/assets/7ca0dcca-2b14-44a3-8100-25f2cbc2f54f" />
 <img width="99" height="56" alt="1000004085" src="https://github.com/user-attachments/assets/77ff0357-e393-4c22-9f50-8b2510284b89" />
 <img width="99" height="56" alt="1000004081" src="https://github.com/user-attachments/assets/59a1d71e-55e5-49b5-b6ed-77bc5aa29345" />
+<img width="99" height="56" alt="1000001425" src="https://github.com/user-attachments/assets/cb279ee8-f0ae-4415-98eb-c5d034044beb" />
+<img width="99" height="56" alt="1000001424" src="https://github.com/user-attachments/assets/8de4cafd-5c31-4771-ad8e-42c55c42ba97" />
+<img width="99" height="56" alt="1000004369" src="https://github.com/user-attachments/assets/85e36d23-ab05-4b30-939e-3ac28b64c981" />
