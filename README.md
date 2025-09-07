@@ -1,11 +1,7 @@
 
 ![](https://komarev.com/ghpvc/?username=funtiimefoxy&color=ff69b4&style=plastic&label="MY+VIEWERS!")
 
-MY DNI! do NOT attend my show if you are under any of these terms.
-—
-basic dni, proship / darkships, terrible mouse!
-
-i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to know! all you should focus on is my performance! unless you wanna take part in the act or whatever. i love my funtime troupe!
+i love my funtime troupe!
 
 <img width="2048" height="1536" alt="1000004300" src="https://github.com/user-attachments/assets/0ab454c5-4e73-4787-b2f7-293f3c8d8d71" />
 
