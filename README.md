@@ -1,7 +1,6 @@
 
 ![](https://komarev.com/ghpvc/?username=funtiimefoxy&color=ff69b4&style=plastic&label="MY+VIEWERS!")
 
-NO GITHUB LINKED?? THAT IS NOT ME!!
 
 i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to know! all you should focus on is my performance! unless you wanna take part in the act or whatever. i love my funtime troupe!
 
