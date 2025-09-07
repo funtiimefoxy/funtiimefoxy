@@ -120,3 +120,27 @@ i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to kn
 <img width="99" height="56" alt="1000004424" src="https://github.com/user-attachments/assets/bb78afab-5f40-4f0c-915f-a6e02b3d4f0b" />
 
 <img width="99" height="56" alt="1000004423" src="https://github.com/user-attachments/assets/f0f7c20b-ea69-402d-b17e-7c6239c9f4bd" />
+
+<img width="99" height="56" alt="1000004481" src="https://github.com/user-attachments/assets/8a6f59c4-bf07-4abf-9fdb-840a4bd4dc6e" />
+
+<img width="99" height="56" alt="1000004478" src="https://github.com/user-attachments/assets/608a837b-4885-4b9e-b5b0-a21a2ad14e4a" />
+
+<img width="99" height="56" alt="1000004480" src="https://github.com/user-attachments/assets/ac19f003-268e-4df2-bb54-3e66582a20ba" />
+
+<img width="99" height="56" alt="1000004483" src="https://github.com/user-attachments/assets/7c41f54c-585c-4eff-8683-c13c5459923b" />
+
+<img width="99" height="56" alt="1000004482" src="https://github.com/user-attachments/assets/c6239fab-3937-4daf-ae6d-dfcfdb13cac9" />
+
+<img width="99" height="56" alt="1000004458" src="https://github.com/user-attachments/assets/d4af5c4a-70bd-4d6e-b18c-79d3ee06cc15" />
+
+<img width="99" height="56" alt="1000004459" src="https://github.com/user-attachments/assets/95c09b06-4af9-46ae-9036-b3d4e38e35fc" />
+
+<img width="99" height="56" alt="1000004462" src="https://github.com/user-attachments/assets/0707be41-ae5a-4dd2-8f56-dc3306454206" />
+
+<img width="99" height="56" alt="1000004461" src="https://github.com/user-attachments/assets/eaabb7f1-5844-43e6-bd9e-ea2dbc2bc792" />
+
+<img width="99" height="56" alt="1000004465" src="https://github.com/user-attachments/assets/99218c03-599f-499e-9dcf-6a381430d43d" />
+
+<img width="99" height="56" alt="1000004468" src="https://github.com/user-attachments/assets/e5fc9a91-f9f0-489a-82db-b2866fd330c9" />
+
+<img width="99" height="56" alt="1000004471" src="https://github.com/user-attachments/assets/003710ff-a302-4958-a467-47d3fe1ef0f5" />
