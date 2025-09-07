@@ -116,3 +116,7 @@ i am a fictkin of funtime foxy, dont ask me why because thats not nesscary to kn
 <img width="99" height="56" alt="1000004421" src="https://github.com/user-attachments/assets/bb71ab07-ea1e-4df2-b7ff-6c748152e73f" />
 
 <img width="99" height="56" alt="1000004420" src="https://github.com/user-attachments/assets/761d01df-58f2-4136-9aaf-e2c812efc09a" />
+
+<img width="99" height="56" alt="1000004424" src="https://github.com/user-attachments/assets/bb78afab-5f40-4f0c-915f-a6e02b3d4f0b" />
+
+<img width="99" height="56" alt="1000004423" src="https://github.com/user-attachments/assets/f0f7c20b-ea69-402d-b17e-7c6239c9f4bd" />
