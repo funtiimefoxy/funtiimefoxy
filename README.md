@@ -164,3 +164,59 @@ i love my funtime troupe!
 <img width="99" height="56" alt="1000004469" src="https://github.com/user-attachments/assets/b7eca0d0-cb1d-4bc4-b59b-dec37384887d" />
 
 <img width="99" height="56" alt="1000004470" src="https://github.com/user-attachments/assets/fdfd4d9e-be27-4bd3-8094-f301c1fa81aa" />
+
+<img width="99" height="56" alt="1000004455" src="https://github.com/user-attachments/assets/22d36da8-4ba9-4981-8a75-50a08675f1ad" />
+
+<img width="99" height="56" alt="1000004456" src="https://github.com/user-attachments/assets/9ade11bd-4b47-40be-afe3-036ed17d336e" />
+
+<img width="99" height="56" alt="1000004440" src="https://github.com/user-attachments/assets/a8c9c508-d0f4-44c8-88b1-58dc694a41e6" />
+
+<img width="99" height="56" alt="1000004444" src="https://github.com/user-attachments/assets/cecad606-deff-4645-a226-063f234e9555" />
+
+<img width="99" height="56" alt="1000004446" src="https://github.com/user-attachments/assets/33ac11ae-cf1d-4c5f-b691-1e5f7500dcbe" />
+
+<img width="99" height="56" alt="1000004453" src="https://github.com/user-attachments/assets/f5e9f3fa-24be-4d6d-8569-5c8ba6d40c28" />
+
+<img width="99" height="56" alt="1000004452" src="https://github.com/user-attachments/assets/a32eac6e-dba3-459d-b6f4-9a5297359114" />
+
+<img width="99" height="56" alt="1000004449" src="https://github.com/user-attachments/assets/380d76ff-2f3c-4e55-b8a1-fc9b50454d89" />
+
+<img width="99" height="56" alt="1000004448" src="https://github.com/user-attachments/assets/efb1916c-7806-4198-8049-1ab4362b66f1" />
+
+<img width="99" height="56" alt="1000004454" src="https://github.com/user-attachments/assets/aa6ec6e2-fdf2-4cf2-b0f4-c2fef7f30a45" />
+
+<img width="99" height="56" alt="1000004450" src="https://github.com/user-attachments/assets/7cccabe0-f019-470c-b604-fd4b26660174" />
+
+<img width="99" height="56" alt="1000004451" src="https://github.com/user-attachments/assets/6287f6b0-5a61-438b-b3a6-bc6420d5d64d" />
+
+<img width="99" height="56" alt="1000004441" src="https://github.com/user-attachments/assets/5acc8150-55db-464b-bbc2-d0fa0ad5d88e" />
+
+<img width="99" height="56" alt="1000004442" src="https://github.com/user-attachments/assets/2010b725-8e22-42f8-9fd4-171815d03bda" />
+
+<img width="99" height="56" alt="1000004445" src="https://github.com/user-attachments/assets/63a5b7ee-28ad-4bb5-9ae1-d6a0f4c54599" />
+
+<img width="99" height="56" alt="1000004447" src="https://github.com/user-attachments/assets/df6500f9-439c-43b3-b64a-fef182fba40a" />
+
+<img width="99" height="56" alt="1000004436" src="https://github.com/user-attachments/assets/bfbe5833-357d-40dd-a00b-b5957f69c26e" />
+
+<img width="99" height="56" alt="1000004437" src="https://github.com/user-attachments/assets/41e83704-d266-425a-b254-afb3716777dc" />
+
+<img width="99" height="56" alt="1000004438" src="https://github.com/user-attachments/assets/f15a0e6d-9960-4b42-9fd8-4e328b488199" />
+
+<img width="99" height="56" alt="1000004439" src="https://github.com/user-attachments/assets/8a924f3d-b561-4ef6-b30c-9436e3d2d7f1" />
+
+<img width="99" height="56" alt="1000004457" src="https://github.com/user-attachments/assets/027a4d91-21a2-404a-b2f2-9e37603adde1" />
+
+<img width="99" height="56" alt="1000004431" src="https://github.com/user-attachments/assets/296c3223-34b8-4ba8-96f2-690061bad427" />
+
+<img width="99" height="56" alt="1000004432" src="https://github.com/user-attachments/assets/0fe6077e-6813-47f7-aa45-e99b8172b9fe" />
+
+<img width="99" height="56" alt="1000004433" src="https://github.com/user-attachments/assets/e0afc15d-bf1f-4326-8987-23d192088179" />
+
+<img width="99" height="56" alt="1000004434" src="https://github.com/user-attachments/assets/857d24d2-2758-4c09-9237-71efb870e5d5" />
+
+<img width="99" height="56" alt="1000004429" src="https://github.com/user-attachments/assets/ebac7e8e-e906-4e9e-9294-bccb1b7f6b21" />
+
+<img width="99" height="56" alt="1000004430" src="https://github.com/user-attachments/assets/67bfd3ff-d511-431c-82ad-d59e84947492" />
+
+<img width="99" height="56" alt="1000004435" src="https://github.com/user-attachments/assets/9aaa552b-d169-447c-8cc2-8d1181a0b52e" />
