@@ -140,3 +140,27 @@ i love my funtime troupe!
 <img width="99" height="56" alt="1000004468" src="https://github.com/user-attachments/assets/e5fc9a91-f9f0-489a-82db-b2866fd330c9" />
 
 <img width="99" height="56" alt="1000004471" src="https://github.com/user-attachments/assets/003710ff-a302-4958-a467-47d3fe1ef0f5" />
+
+<img width="99" height="56" alt="1000004477" src="https://github.com/user-attachments/assets/acec3121-aa4d-4e6b-9adc-8d7cb813c3e4" />
+
+<img width="99" height="56" alt="1000004476" src="https://github.com/user-attachments/assets/0b52ce30-3825-4107-bdf1-55f86380098b" />
+
+<img width="99" height="56" alt="1000004479" src="https://github.com/user-attachments/assets/d3adc03b-cd44-4479-9c46-a10c80422163" />
+
+<img width="99" height="56" alt="1000004473" src="https://github.com/user-attachments/assets/2fe84a0a-89b7-4962-9c87-575eab7ab022" />
+
+<img width="99" height="56" alt="1000004474" src="https://github.com/user-attachments/assets/0746cb4d-0cc1-4052-83f9-17f82df0cb24" />
+
+<img width="99" height="56" alt="1000004475" src="https://github.com/user-attachments/assets/163350b5-989d-4f98-b643-72f3a9e9e7a9" />
+
+<img width="99" height="56" alt="1000004464" src="https://github.com/user-attachments/assets/4bd3cc07-982f-497b-9be9-069f8cc1d37e" />
+
+<img width="99" height="56" alt="1000004466" src="https://github.com/user-attachments/assets/6c90ed8f-8be0-40dd-a4db-7ad7d9e41b60" />
+
+<img width="99" height="56" alt="1000004467" src="https://github.com/user-attachments/assets/e3fa5c19-a42f-4cee-a337-8fb2de374b46" />
+
+<img width="99" height="56" alt="1000004472" src="https://github.com/user-attachments/assets/faaa5cc1-6f24-426a-b14e-9ef47f9e681f" />
+
+<img width="99" height="56" alt="1000004469" src="https://github.com/user-attachments/assets/b7eca0d0-cb1d-4bc4-b59b-dec37384887d" />
+
+<img width="99" height="56" alt="1000004470" src="https://github.com/user-attachments/assets/fdfd4d9e-be27-4bd3-8094-f301c1fa81aa" />
