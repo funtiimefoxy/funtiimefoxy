@@ -12,3 +12,5 @@ ponytown player <img width="20" height="20" alt="1000004815" src="https://github
 
 
 <img width="1500" height="237" alt="1000004812" src="https://github.com/user-attachments/assets/654dff7e-407d-49b5-b19c-f3e2dac22e39" />
+
+<img width="1000" height="1000" alt="1000004829" src="https://github.com/user-attachments/assets/68ed6607-809c-4bc2-a468-e7c6f2b508bd" />
