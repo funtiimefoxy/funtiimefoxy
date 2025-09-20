@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-ponytown player <img width="20" height="20" alt="1000004815" src="https://github.com/user-attachments/assets/fe3ea654-61bf-4f89-b548-89aa28a22e0e" /> puppet (THE ODDITIES ROLEPLAY.) yume!
+ponytown player <img width="20" height="20" alt="1000004815" src="https://github.com/user-attachments/assets/fe3ea654-61bf-4f89-b548-89aa28a22e0e" /> pangender + uranic !
 
 <img width="1500" height="237" alt="1000004812" src="https://github.com/user-attachments/assets/654dff7e-407d-49b5-b19c-f3e2dac22e39" />
 
