@@ -9,9 +9,10 @@
 ponytown player <img width="20" height="20" alt="1000004815" src="https://github.com/user-attachments/assets/fe3ea654-61bf-4f89-b548-89aa28a22e0e" /> pangender + uranic !
 
 <img width="1500" height="237" alt="1000004812" src="https://github.com/user-attachments/assets/654dff7e-407d-49b5-b19c-f3e2dac22e39" />
-
 <p align="center">
 FNAF STAMP HOARD
+</p>
+<p align="center">
   <img width="100" height="57" alt="1000004875" src="https://github.com/user-attachments/assets/c8de8571-f407-4962-9116-948a1b6076c5" />
 <img width="100" height="57" alt="1000004879" src="https://github.com/user-attachments/assets/a381fb8e-caa1-4a78-9696-ab0e310b42be" />
 <img width="99" height="56" alt="1000004877" src="https://github.com/user-attachments/assets/5507694c-df94-44d8-b29c-a00082a4421d" />
